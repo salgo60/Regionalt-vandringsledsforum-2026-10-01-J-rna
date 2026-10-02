@@ -3,4 +3,9 @@ Saker som kom upp på [https://www.lansstyrelsen.se/stockholm/om-oss/kalender/ka
 
 Tanken att dokumentera saker som kom upp under denna dag och även jag funderade över
 
+Magnus Sälgö
+0735152802
+email: salgo60@msn.com
+
+
 
